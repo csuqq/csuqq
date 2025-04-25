@@ -1,6 +1,6 @@
 yo wsp. Im a bitchass called csu  
 i love pizza.... i mean.... I WORSHIP IT
-i think the best time was at semptember 2001
+and i think the best time was at semptember 2001
 
 
 
